@@ -1,4 +1,1 @@
 # estudos
-# estudos
-# estudos
-# estudos
